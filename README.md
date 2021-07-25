@@ -1,1 +1,0 @@
-# Dimond-Generator.github.io
